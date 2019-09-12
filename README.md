@@ -1,2 +1,10 @@
 # CHALLANGE 01
 ![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(59).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(60).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(61).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(62).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(63).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(64).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(65).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(66).png)
+![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(67).png)
