@@ -14,5 +14,5 @@
 ![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(65).png)
 # MultiDimensi4
 ![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(66).png)
-# Array teman sebangku
+# Array teman sederet
 ![Alt text](https://github.com/arfinadevi28/Biodata/blob/master/Screenshot%20(67).png)
